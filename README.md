@@ -1,1 +1,2 @@
-<img width="768" height="639" alt="300_sin_titulo_20260418005637" src="https://github.com/user-attachments/assets/53cdf40e-2744-4475-ab32-0dee829e088e" />
+<img width="1600" height="1200" alt="WhatsApp Image 2026-06-13 at 7 30 31 PM" src="https://github.com/user-attachments/assets/8eb72873-f42a-4802-bae3-f0d49fe9937b" />
+
